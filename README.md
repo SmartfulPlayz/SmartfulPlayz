@@ -5,3 +5,4 @@
 SmartfulPlayz/SmartfulPlayz is a ✨ special ✨ repository
 --->
 I sometimes stream on twitch: https://www.twitch.tv/smartfulplayz
+I also ilke music (classical songs and alturnative) and I play the Piano and the Cello!
